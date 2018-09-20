@@ -1,4 +1,4 @@
-#What Makes a Personality?
+# What Makes a Personality?
 
 Reading Jon Bois’ 17776 inspired me to think more about how Nine, Ten, and Juice developed their personalities. A simple answer would be that they talk and type like humans of their time period would: this explains why Juice never uses capitalization and rarely uses punctuation, decorating his conversations with obscenities and slang. I found Juice hilarious and relatable,  which makes sense considering that he would be closer to my age. 
 
